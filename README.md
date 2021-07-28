@@ -1,7 +1,7 @@
 ![](https://visitor-badge.glitch.me/badge?page_id=YAKKOXCODE)
 
 ## Ahlan Wa Sahlan<img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Hi.gif" width="29px">
-Hi, I'm Zhirrr, My Fullname is Zahir Hadi Athallah, I'm an 14 y.o Coder
+Hi, I'm YAKKOXCODE, My Fullname is Yakko XCode, I'm an 17 y.o Coding
 <br>
 
 - 🌱 I Can Codes In :
